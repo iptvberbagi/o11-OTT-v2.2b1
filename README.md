@@ -14,8 +14,7 @@
 ```
 
 
-<b>Forum:</b> https://drmstuff.com</br>
-<b>Telegram Group:</b> https://t.me/drmstuff
+<b>Youtube:</b> https://www.youtube.com/@IPTVBERBAGI-s4s</br>
 
 
 ```
